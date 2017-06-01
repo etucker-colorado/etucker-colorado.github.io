@@ -1,3 +1,3 @@
-## Ellen Tucker
+## E. Tucker
 
 Welcome!
